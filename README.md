@@ -1,1 +1,1 @@
-Mobile Website Codes for @中大闲置 微信公众号
+Mobile Website Codes for @华师闲置 微信公众号
